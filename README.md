@@ -5,3 +5,4 @@ I specify in Information Security, Business Analytics, and IT Value
 Last 3 month I was prepareing my prelim exam, writtiing my projects
 
 
+shuai
